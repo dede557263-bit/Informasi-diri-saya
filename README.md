@@ -1,2 +1,0 @@
-# Informasi-diri-saya
-Informasi 
